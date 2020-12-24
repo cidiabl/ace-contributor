@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-#### 🔭 I can contribute!
+## Open to Jobs! 🔭 
