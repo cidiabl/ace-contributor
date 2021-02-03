@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-## Open to Jobs! 🔭 
+## I'm Crypto Ninja! 🥷🏻
