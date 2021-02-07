@@ -2,7 +2,7 @@
 
 ## Crypto Ninja! 🥷🏻
 
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=ace-contributor&label=Profile%20views&color=0e75b6&style=plastic" alt="mini-pingu" /> </p>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=ace-contributor&label=Profile%20views&color=0e75b6&style=plastic" alt="mini-pingu" /> </p>
 
 <br />
 
