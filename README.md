@@ -1,3 +1,3 @@
 <div align="center">
 
-## Crypto Ninja! 🥷🏻
+## 🥷🏻 Crypto Ninja 🥷🏻
